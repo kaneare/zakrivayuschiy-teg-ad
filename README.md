@@ -1,1 +1,1 @@
-https://kaneare.github.io/zakrivayuschiy-teg-f/
+https://github.com/kaneare/zakrivayuschiy-teg-ad
